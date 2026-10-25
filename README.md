@@ -7,13 +7,6 @@ Video demonstration
 
 https://youtu.be/FJntEY91Arg?si=p9Z9AyiYMzACSlYU
 
-while I share this my family is starving and old man is dying from 5x bypass surgery as I try to get a helpdesk traineeship but dont have 2 years IT experience. yet i continue to spread awareness where others dont. You learn this so you understand the criminal mindset so you can protect your company
-
-https://buymeacoffee.com/rainfantry
-
-https://22div.com.au
-
-If you are a Sydney based IT/CSEC company that can train me or give an internship, anything so I can help my father - contact me at contact@22div.com.au or gwu0738@gmail.com
 
 
 # eml2html
